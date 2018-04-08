@@ -35,27 +35,27 @@
 
 --------------------------------------------------------------------
 
-> why is it that our physical health is so much more important to  us, than our psychological health ?
+> why is it that our physical health is so much more important to  us, than our psychological health ?<br><br>
 > 为什么我们那么重视身体健康远远多与心理健康呢？
 --------------------------------------------------------------------
-> in fact, we all have a default set of feelings and beliefs that gets triggered whenever we encounter frustrations and setbacks.Are you aware of how your mind reacts to failure? you need to be. Because if your mind tries to convince you you’re incapable of something and you believe it, you’ll begin to feel helpless and you stop trying too soon, or you won’t even try at all. And then you’ll be even more convinced you can’t succeed.
+> in fact, we all have a default set of feelings and beliefs that gets triggered whenever we encounter frustrations and setbacks.Are you aware of how your mind reacts to failure? you need to be. Because if your mind tries to convince you you’re incapable of something and you believe it, you’ll begin to feel helpless and you stop trying too soon, or you won’t even try at all. And then you’ll be even more convinced you can’t succeed.<br><br>
 > 事实上，我们都有一个固定的思维感知模式，每当我们感到沮丧，受到挫折，我们便会进入这个模式。你清不清楚你是怎么对应失败的？你应该清楚。因为如果你的头脑告诉你你不能做成什么事，而你相信了的话，你会开始感到无助，然后你很快就放弃了，甚至都不去试一下。然后你就更加确信你成功不了。
 --------------------------------------------------------------------
->Once we become convinced of something, it’s very difficult to change our mind. It might be very natural to feel demoralized and defeated after you fail. But you cannot allow yourself to become convinced you can’t succeed. You have to fight feelings of helplessness. You have to gain control over the situation. And you have to break this kind of negative cycle before it begins. 
->一旦我们认定了的事情，我们很难改变看法。所以当你失败了，感觉士气低落是很正常的，但是你不能允许自己相信你不可能成功。你要和那种无助的感觉斗争，你要重新控制局面，而且你必须在这种负能量循环开始前打破它。
+>Once we become convinced of something, it’s very difficult to change our mind. It might be very natural to feel demoralized and defeated after you fail. But you cannot allow yourself to become convinced you can’t succeed. You have to fight feelings of helplessness. You have to gain control over the situation. And you have to break this kind of negative cycle before it begins. <br>
+><br>一旦我们认定了的事情，我们很难改变看法。所以当你失败了，感觉士气低落是很正常的，但是你不能允许自己相信你不可能成功。你要和那种无助的感觉斗争，你要重新控制局面，而且你必须在这种负能量循环开始前打破它。
 --------------------------------------------------------------------
-> By taking action when you’re lonely,
-> by changing your responses to failure,
-> by protecting your self-esteem,
-> by battling negative thinking,
-> you won’t just heal your psychological wounds,
-> you will build emotional resilience, you will thrive.
-> 当你在孤独的时候采取行动，
-> 当你失败的时候改变你的反应
-> 当你保护自己的自尊心，
-> 当你与负面的思想做斗争
-> 你不仅可以治愈心理上的创伤
-> 你会建立起情绪恢复能力，你会变的更强。
+> By taking action when you’re lonely,<br>
+> by changing your responses to failure,<br>
+> by protecting your self-esteem,<br>
+> by battling negative thinking,<br>
+> you won’t just heal your psychological wounds,<br>
+> you will build emotional resilience, you will thrive.<br><br>
+> 当你在孤独的时候采取行动，<br>
+> 当你失败的时候改变你的反应<br>
+> 当你保护自己的自尊心，<br>
+> 当你与负面的思想做斗争<br>
+> 你不仅可以治愈心理上的创伤<br>
+> 你会建立起情绪恢复能力，你会变的更强。<br>
 --------------------------------------------------------------------
->Can you imagine what the world would be like if everyone was psychologically healthier? if there were less loneliness and less depression? if people knew how to overcome failure? if they felt better about themselves and more empowered? if they were happier and more fulfilled? I can, because that’s the world I want to live in.
+>Can you imagine what the world would be like if everyone was psychologically healthier? if there were less loneliness and less depression? if people knew how to overcome failure? if they felt better about themselves and more empowered? if they were happier and more fulfilled? I can, because that’s the world I want to live in.<br><br>
 > 能想象一下嘛？这个世界会是什么样子。如果每个人都在心理上更健康，如果世上少一些孤独和失望，如果人们了解如何走出失败的阴影，如果人们更加自信，更加有活力，如果人们更加幸福，更加满足。 我能，因为那是一个我想置身其中的世界。
