@@ -1,37 +1,37 @@
 ### TED - 怎样打败孤独和负能量？
->每个人都有情绪低落的时候。当事业遭遇失败、表白被拒绝、生活充满焦虑时，应该怎么办？
- (img)
- [视频链接]
-- doctorate 博士学位 / master degree 硕士学位 / 
-	phd 哲学博士学位-（Doctor of Philosophy）
-	postdoctor 博士后 
-	doctoral student（博士生）- doctoral candidate(博士候选人) - Doctor 博士
-	supervisor of doctoral candidate 博士生导师
-- 1. psycho 精神病的 n.心理分析，精神病患者
-		psychology 心理学，心理状态
-		psychologist 心理学家
-		psychological 心理学的
-	2. physics 物理现象，物理学
-		physical 身体的，物质的，物理的
-		physicist 物理学家
-	3. philosophy 哲学
-		philosopher 哲学家 
-		philosophic/philosophical 哲学的
+>**介绍：**在我们生命的某个时刻，几乎每个人都会心碎。想象一下，如果我们更多地关注这种独特的情感痛苦，事情会有多么不同。心理学家Guy Winch揭示了如何恢复从心碎开>始有决心把我们的本能和寻找答案是不存在，并提供如何，最终一个工具包，继续前进。我们的心有时会破碎，但我们不必与他们决裂。
+ 
+![avatat](https://s1.ax1x.com/2018/04/08/CipGo4.png)
+[视频传送门](https://open.163.com/movie/2015/10/G/O/MB5HOOGO0_MB5HPT9GO.html)
+- doctorate 博士学位 / master degree 硕士学位 / <br>
+	phd 哲学博士学位-（Doctor of Philosophy）<br>
+	postdoctor 博士后 <br>
+	doctoral student（博士生）- doctoral candidate(博士候选人) - Doctor 博士<br>
+	supervisor of doctoral candidate 博士生导师<br>
+- 1. psycho 精神病的 n.心理分析，精神病患者<br>
+     psychology 心理学，心理状态<br>
+     psychologist 心理学家<br>
+     psychological 心理学的<br>
+  2. physics 物理现象，物理学<br>
+     physical 身体的，物质的，物理的<br> 
+     physicist 物理学家<br>
+  3. philosophy 哲学<br>
+     philosopher 哲学家 <br>
+     philosophic/philosophical 哲学的<br>
 	
-- scratch n.擦伤，抓痕，刮写 a.打草稿用的，凑合的 v.抓，刮，乱涂
-	wrench/twist v.扭 
-	distort 扭曲，使变形，曲解
-	rotate/spin/revolve 旋转 - involve 参与，设计
-- barely 仅仅，勉强，几乎不 / merely 仅仅，只不过
-- infect 感染，传染，影响 / virus 病毒
-- shake it off 摆脱 / get rid of 
-- gap v.裂开 n.裂口，缝隙 / close/bridge the gap between A and B
-- either
-- apart 相距，分离的，与众不同的 / adopt 采取，收养，接受 / adapt 适用，改编
-- brutal 残忍的 / cruel 残忍的，残酷的
-- chronic 慢性的，长期的，习惯性的 
-   '' Chronic loneliness increases your likelihood of an early death by 14 percent. 长期的孤独会增加你早逝的可能性高达14%。
- - identical 同一队，完全相同的 n.完全相同的事物
+- scratch n.擦伤，抓痕，刮写 a.打草稿用的，凑合的 v.抓，刮，乱涂<br>
+  wrench/twist v.扭 <br>
+  distort 扭曲，使变形，曲解<br>
+  rotate/spin/revolve 旋转 - involve 参与，设计<br>
+- barely 仅仅，勉强，几乎不 / merely 仅仅，只不过<br>
+- infect 感染，传染，影响 / virus 病毒<br>
+- shake it off 摆脱 / get rid of <br>
+- gap v.裂开 n.裂口，缝隙 / close/bridge the gap between A and B<br>
+- apart 相距，分离的，与众不同的 / adopt 采取，收养，接受 / adapt 适用，改编<br>
+- brutal 残忍的 / cruel 残忍的，残酷的<br>
+- chronic 慢性的，长期的，习惯性的 <br>
+   '' Chronic loneliness increases your likelihood of an early death by 14 percent. 长期的孤独会增加你早逝的可能性高达14%。<br>
+ - identical 同一队，完全相同的 n.完全相同的事物<br>
 
 --------------------------------------------------------------------
 
