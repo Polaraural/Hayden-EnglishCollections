@@ -22,7 +22,7 @@
 - scratch n.擦伤，抓痕，刮写 a.打草稿用的，凑合的 v.抓，刮，乱涂<br>
   wrench/twist v.扭 <br>
   distort 扭曲，使变形，曲解<br>
-  rotate/spin/revolve 旋转 - involve 参与，设计<br>
+  rotate/spin/revolve 旋转 - involve 参与，涉及<br>
 - barely 仅仅，勉强，几乎不 / merely 仅仅，只不过<br>
 - infect 感染，传染，影响 / virus 病毒<br>
 - shake it off 摆脱 / get rid of <br>
@@ -31,7 +31,7 @@
 - brutal 残忍的 / cruel 残忍的，残酷的<br>
 - chronic 慢性的，长期的，习惯性的 <br>
    '' Chronic loneliness increases your likelihood of an early death by 14 percent. 长期的孤独会增加你早逝的可能性高达14%。<br>
- - identical 同一队，完全相同的 n.完全相同的事物<br>
+ - identical 同一的，完全相同的 n.完全相同的事物<br>
 
 --------------------------------------------------------------------
 
