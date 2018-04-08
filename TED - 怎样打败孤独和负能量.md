@@ -4,12 +4,12 @@
 ![avatat](https://s1.ax1x.com/2018/04/08/CipGo4.png)
 [视频传送门](https://open.163.com/movie/2015/10/G/O/MB5HOOGO0_MB5HPT9GO.html)
 - doctorate 博士学位 / master degree 硕士学位 / <br>
-	phd 哲学博士学位-（Doctor of Philosophy）<br>
+        phd 哲学博士学位-（Doctor of Philosophy）<br>
 	postdoctor 博士后 <br>
 	doctoral student（博士生）- doctoral candidate(博士候选人) - Doctor 博士<br>
 	supervisor of doctoral candidate 博士生导师<br>
-- 1. psycho 精神病的 n.心理分析，精神病患者<br>
-     psychology 心理学，心理状态<br>
+- 1. [psycho](http://music.163.com/#/song?id=440208643)精神病的 n.心理分析，精神病患者<br>
+     psychology 心理学，心理状态<br>
      psychologist 心理学家<br>
      psychological 心理学的<br>
   2. physics 物理现象，物理学<br>
